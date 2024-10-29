@@ -35,7 +35,7 @@ Symbols | Символы
 New Emojis | Новые Эмодзи    
 🤵‍♂️ 👰‍♂️ 👰‍♀️ 👩‍🍼 🧑‍🍼 👨‍🍼 🧑‍🎄 🐈‍🐻‍❄️ ⚧️   
 
-Halloween Emojis | Halloween Эмодзи
+Halloween Emojis | Halloween Эмодзи    
 🎃 👻 🦇 🦉 💀 🧟 🧛 🧛🏻‍♀️ 🔪 💕 🩸 🪦 🕯️🪄 🌕 🌒 🔮 🧙🏻 🧹
 🤡 😈 🥶 😱 👺 🍷 🍬 🍄 🍂 🍁 🕷️ 🕸 🕷 🕸️ 𖤐 ☠︎ 
 🖤 🧡 💙 🤎 ❤️ 🩵
